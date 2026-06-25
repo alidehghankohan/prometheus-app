@@ -1,1 +1,0 @@
-فرمول Hook → Problem → Escalation → Turning Point → Emotional Ending.
